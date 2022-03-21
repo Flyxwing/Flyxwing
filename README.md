@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Flyxwing
+- 👋 Hi, I’m @Flyxwing a 15 yo guy from Germany.
 - 👀 I’m interested in helping people and doing some stuff.
 - 📫 How to reach me? Flyxwing#5383 on discord
 
